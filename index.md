@@ -11,3 +11,11 @@
 ![is this a coping mechanism?](./Is-This-A-Pigeon.jpg)
 
 ![after a breakup](./lwpmje3rdohz.jpg)
+
+![minecraft](./c4pqdt3sen531.jpg)
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/IWnD1YBPhNU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/XC3CjYCGEro" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube-nocookie.com/embed/xJoTkNrWgUk" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
